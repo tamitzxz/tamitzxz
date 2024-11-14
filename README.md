@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tamitzxz
-- 👀 I’m interested in ...novas oportunidades, e novas experiencias
+- 👀 I’m interested in novas oportunidades, e novas experiencias
 - 🌱 I’m currently learning ..
 - 
 - 💞️ I’m looking to collaborate on ...
